@@ -1,1 +1,2 @@
 # fsgfsgrsgsgs
+будь умным 🤓🤓🤓🤓🤓🤓
